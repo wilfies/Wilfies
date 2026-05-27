@@ -7,7 +7,7 @@
 <br>
 <br>
 <br>
-wip wip txt txt
+<img width="968" height="768" alt="2274" src="https://github.com/user-attachments/assets/fd16ef21-a273-4e26-8292-a5bf314ed0f2" />
 <br>
 <br>
 <br>
@@ -25,7 +25,7 @@ wip wip txt txt
 <br>
 <br>
 <br>
-wip txt txt
+<img width="968" height="768" alt="2273" src="https://github.com/user-attachments/assets/3fe6007f-693d-4cd3-aaec-1e0a4bad0c5e" />
 <br>
 <br>
 <br>
