@@ -7,7 +7,36 @@
 <br>
 <br>
 <br>
-<img width="968" height="768" alt="2274" src="https://github.com/user-attachments/assets/fd16ef21-a273-4e26-8292-a5bf314ed0f2" />
+
+<p align="center">
+  ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ .
+</p>
+<p align="center">
+  ❝　⠀　𝕤ⓟ𝒶𝖽𝖾s　⠀　✶.
+</p>
+　　　<p align="center">
+  ‹　¹❹yo﹒　›　　✙　　nate﹒.
+   </p>
+   
+　　 　 　[❶](<https://www.tiktok.com/@itsallyourswifies_?_r=1&_t=ZS-96i6Dsr7YnN>)　　[❷](<https://github.com/wilfies>)　　　[❸](<https://chicknsworder.straw.page/>)
+ <p align="center">
+  ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔.
+</p>
+　　BOUNDARI𝐄S𓈒(dni)　　　　　　　:
+- _ _　·　I don't like being called as a female,Jokes are fine but hey thats transphobic dude im sorry🥹🥹.<br>
+- _ _　·     people younger than 12 .<br>
+- _ _　·　the so called dark humour stuff.<br>
+- _ _　·　basic dni.<br>
+- _ _　·　problematic media basically.<br>
+- _ _　·　boundary breakers. <br>
+- _ _　·　i'll be the freakiest guy you'll probably ever met so uhm block me if you dont like those kinda jokes.<br>
+- _ _　·　please dni if youre older than 18 okay thanks im too young to be friends with you.<br>
+_ _　　▬▬▬▬　　❝　male.　he  /  it.<br>
+Info<br>
+- _ _　·　I have emophillia, but im trying to not give in that much.<br>
+- _ _　·　im gay and bisexual woohoo.<br>
+- _ _　·　I can be really clingy sometimes and spam you uhm yeah.<br>
+- _ _　·　dm me if you need to know anything else idk.<br>
 <br>
 <br>
 <br>
@@ -25,7 +54,10 @@
 <br>
 <br>
 <br>
-<img width="968" height="768" alt="2273" src="https://github.com/user-attachments/assets/3fe6007f-693d-4cd3-aaec-1e0a4bad0c5e" />
+<img width="100" height="100" alt="2301" src="https://github.com/user-attachments/assets/b7475c5a-deb4-43d7-bf31-33cabd4c0ad8" /><img width="100" height="100" alt="2300" src="https://github.com/user-attachments/assets/5a75248f-15b2-4c78-8afc-6c97f475c2f3" /> I love wolfs
+<img width="100" height="100" alt="2302" src="https://github.com/user-attachments/assets/c8098e8a-cec9-4024-bea5-c76da070414b" />
+ <img width="100" height="100" alt="2303" src="https://github.com/user-attachments/assets/dd285460-5285-4a44-af18-7d66db3acd66" /> wyd cutie
+
 <br>
 <br>
 <br>
